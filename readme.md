@@ -1,1 +1,1 @@
-## Page of sucessfull wifi conect for free hotspot
+## Page of sucessfull Wi-Fi conect for free hotspot.
